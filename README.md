@@ -1,4 +1,4 @@
 ㅤJamieㅤouㅤRitterㅤ◞ ◟
-ㅤ♡ㅤHoncho's　⸺　He It
+ㅤㅤ♡ㅤHoncho's　⸺　He It
 　
 The Honcho Of The Roblox Area !!
