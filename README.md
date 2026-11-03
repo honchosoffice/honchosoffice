@@ -5,13 +5,12 @@
 <br/>
 <br/>
 <br/>
+
 ${\color{#2b2034}{\textsf ︶︶}} \color{#37435f}{\textsf{jamieㅤouㅤritter}}  \color{#e1caa6}{\textsf{he it}}$
 <br/>
 ㅤc+hㅤenc　❜ㅤiwecㅤ+ㅤw2int !!! <br/>
 　the　honcho　of　the　roblox　area !!
 
-${\color{#2b2034}{\textsf ︶︶}} \color{#37435f}{\textsf{jamieㅤouㅤritter}}  \color{#e1caa6}{\textsf{he it}}$
-<br/>
 
 
  
