@@ -1,8 +1,10 @@
 <p align="center"><img width="400" src="https://file.garden/aA8S96EHMAOFVxCO/Untitled128_20261030203450.png" alt="poncho" align="left" width="300" /></p>
 ㅤ<br/>
 <br/>
-ㅤjamieㅤouㅤritterㅤ◞ ◟ㅤhe it<br/>
+ㅤ ︶︶ㅤjamieㅤouㅤritterㅤㅤhe it <br/>
+ㅤc+hㅤenc　❜ㅤiwecㅤ+ㅤw2int !!! <br/>
 ㅤ♡　honcho's　⸺　riako　yume <br/>
+
 　the　honcho　of　the　roblox　area !!
 
 
