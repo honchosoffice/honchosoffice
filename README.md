@@ -21,7 +21,8 @@
 
  ㅤ
  
-
+${\color{#2b2034}{\textsf ︶︶}} \color{#37435f}{\textsf{jamieㅤouㅤritter}}  \color{#e1caa6}{\textsf{he it}}$
+<br/>
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
 ${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{video home system!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
