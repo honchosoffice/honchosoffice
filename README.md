@@ -1,3 +1,5 @@
+<p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175142610803499.jpg" /></p>
+
 <p align="center"><img width="400" src="https://file.garden/aA8S96EHMAOFVxCO/Untitled128_20261030203450.png" alt="poncho" align="left" width="300" /></p>
 ㅤ<br/>
 <br/>
