@@ -5,7 +5,7 @@
 <br/>
 <br/>
 <br/>
-ㅤ ${\color{#2b2034}{\textsf︶︶}}ㅤ${\color{#37435f}{\textsfjamieㅤouㅤritter}}ㅤㅤ${\color{#e1caa6}{\textsf︶︶}}he it}}$ <br/>
+ㅤ ${\color{#2b2034}{\textsf︶︶}}ㅤ\color{#37435f}{\textsfjamieㅤouㅤritter}}ㅤㅤ\color{#e1caa6}{\textsf︶︶}}he it}}$ <br/>
 ㅤc+hㅤenc　❜ㅤiwecㅤ+ㅤw2int !!! <br/>
 　the　honcho　of　the　roblox　area !!
 
