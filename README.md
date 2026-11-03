@@ -5,7 +5,7 @@
 <br/>
 <br/>
 <br/>
-${\color{#2b2034}{\textsf{︶︶}}ㅤ\color{#37435f}{\textsf{jamieㅤouㅤritter}}ㅤㅤ\color{#e1caa6}{\textsf{he it}}$ 
+ㅤㅤ${\color{#2b2034}{\textsf{︶︶}}ㅤ\color{#37435f}{\textsf{jamieㅤouㅤritter}}ㅤㅤ\color{#e1caa6}{\textsf{he it}}$ 
 <br/>
 ㅤc+hㅤenc　❜ㅤiwecㅤ+ㅤw2int !!! <br/>
 　the　honcho　of　the　roblox　area !!
@@ -21,7 +21,7 @@ ${\color{#2b2034}{\textsf{︶︶}}ㅤ\color{#37435f}{\textsf{jamieㅤouㅤritter
 
  ㅤ
  
-${\color{#decfa3}{\textsf ︶︶}} \color{#717170}{\textsf{jamieㅤouㅤritter}}  \color{#717170}{\textsf{he it}}$
+${\color{#2b2034}{\textsf ︶︶}} \color{#717170}{\textsf{jamieㅤouㅤritter}}  \color{#717170}{\textsf{he it}}$
 <br/>
 ${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
 <br/>
