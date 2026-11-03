@@ -3,8 +3,6 @@
 <br/>
 ㅤ ︶︶ㅤjamieㅤouㅤritterㅤㅤhe it <br/>
 ㅤc+hㅤenc　❜ㅤiwecㅤ+ㅤw2int !!! <br/>
-ㅤ♡　honcho's　⸺　riako　yume <br/>
-
 　the　honcho　of　the　roblox　area !!
 
 
