@@ -11,7 +11,7 @@ ${\color{#565978}{\textsf ︶︶}}ㅤㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color
 ${\color{#9dbfd1}{\textsf c+hㅤenc}}　\color{#993e36}{\textsf{❜ㅤiwec}} ㅤ\color{#7b99b8}{\textsf{+}}ㅤ\color{#565978}{\textsf{w2int !!!}}$ <br/>
 ${\color{#993e36}{\textsf the}}　\color{#565978}{\textsf{honcho　of}}　\color{#7a98b6}{\textsf{the}}　\color{#9dbfd1}{\textsf{roblox}}　\color{#e1caa6}{\textsf{area}}$ 
 
-　 ${\color{#9dbfd1}{\textsf c+hㅤenc}}[rentry](https://rentry.co/honchocoholic)}}$  　‎✦　 ata soon
+[rentry](https://rentry.co/honchocoholic)  　‎　 ata soon
   
 <tr>
 <td>
