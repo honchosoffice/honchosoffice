@@ -11,28 +11,12 @@ ${\color{#565978}{\textsf ︶︶}}ㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color{#9
 ${\color{#9dbfd1}{\textsf c+hㅤenc}}　\color{#993e36}{\textsf{❜ㅤiwec}} ㅤ\color{#7b99b8}{\textsf{+}}ㅤ\color{#565978}{\textsf{w2int !!!}}$ <br/>
 ${\color{#993e36}{\textsf the}}　\color{#565978}{\textsf{honcho　of}}　\color{#7a98b6}{\textsf{the}}　\color{#9dbfd1}{\textsf{roblox}}　\color{#e1caa6}{\textsf{area}}$ !!
 
-
-
- 
-
-
-
-
-
- ㅤ
- 
-${\color{#2b2034}{\textsf ︶︶}} \color{#37435f}{\textsf{jamieㅤouㅤritter}}  \color{#e1caa6}{\textsf{he it}}$
-<br/>
-${\color{#717170}{\textsf he ⭑ any}} \color{#decfa3}{\textsf{　꒱　}} \color{#b1a88e}{\textsf{enfp-t }}  \color{#4c505f}{\textsf{eng only}}$
-<br/>
-${\color{#b1a88e}{\textsf apart}} \color{#decfa3}{\textsf{of the}} \color{#717170}{\textsf{video home system!}} \color{#decfa3}{\textsf{ ﹕ ꔫ}}$
-
-　 [sign atabook](https://kaveh.atabook.org) 　‎✦　 [contact me](https://guns.lol/vhs)
+　 [rentry](https://rentry.co/honchocoholic) 　‎✦　 ata soon
   
 <tr>
 <td>
   <details>
-<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤclick me !ㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
 $${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
 　　<br>
