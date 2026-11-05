@@ -6,7 +6,7 @@
 <br/>
 <br/>
 
-${\color{#565978}{\textsf ︶︶}} \color{#7a98b6}{\textsf{jamie}}ㅤ\color{#9dbfd1}{\textsf{ouㅤritter}}  \color{#e1caa6}{\textsf{he it}}$
+${\color{#565978}{\textsf ︶︶}}ㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color{#9dbfd1}{\textsf{ouㅤritter}}ㅤㅤ\color{#e1caa6}{\textsf{he it}}$
 <br/>
 ${\color{#9dbfd1}{\textsf c+hㅤenc}}　\color{#993e36}{\textsf{❜ㅤiwec}} ㅤ\color{#7b99b8}{\textsf{+}}ㅤ\color{#565978}{\textsf{w2int !!!}}$ <br/>
 the　honcho　of　the　roblox　area !!
