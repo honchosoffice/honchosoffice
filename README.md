@@ -22,15 +22,15 @@ ${\color{#993e36}{\textsf ⸺ no1}}　\color{#565978}{\textsf{doors}}　\color{#
 <tr>
 <td>
   <details>
-<summary>$\color{#565978}{\textsf{ㅤㅤㅤㅤㅤpt｡ㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#7a98b6}{\textsf{ㅤㅤㅤㅤㅤpt｡ㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
-$${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
+$${\color{#717170} amㅤmostlyㅤsittingㅤw/ㅤfriendsㅤandㅤofftabㅤ...}$$
 　　<br>
-$${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
+$${\color{#4c505f} iㅤlikeㅤapproachingㅤpplㅤalot!ㅤbeㅤnoㅤafraidㅤ:P}$$
     <br>
-$${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
+$${\color{#717170} ifㅤmeㅤnoㅤrespondㅤmeㅤbusyㅤmaybe.ㅤiㅤdon't}$$
 　　<br>
-$${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
+$${\color{#4c505f} doㅤitㅤonㅤpurposeㅤ.ㅤiㅤlikeㅤmeetingㅤnewㅤppl}$$
     <br>
 
   </details>
@@ -43,15 +43,12 @@ $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤ
 <tr>
 <td>
   <details>
-<summary>$\color{#565978}{\textsf{ㅤㅤㅤㅤㅤme's｡ㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#7a98b6}{\textsf{ㅤㅤㅤㅤㅤme's｡ㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
-$${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
+$${\color{#717170} amㅤseverelyㅤmentallyㅤill.ㅤpsst.ㅤmeㅤisㅤsystem.}$$
 　　<br>
-$${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
+$${\color{#4c505f} iㅤamㅤextremelyㅤfixatedㅤonㅤdoorsㅤrn!!!ㅤdoor.}$$
     <br>
-$${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
-　　<br>
-$${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
     <br>
 
   </details>
