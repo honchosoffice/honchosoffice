@@ -2,7 +2,7 @@
 
 <p align="center"
   
-$${\color{#663549}{\textsf i　was　doin'　just　fine　⟡}$$
+$${\color{#663549}{\textsf i　was　doin'　just　fine　⟡}}$$
 
 </p>
 
