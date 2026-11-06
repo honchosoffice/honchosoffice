@@ -16,7 +16,7 @@ ${\color{#993e36}{\textsf ⸺ no1}}　\color{#565978}{\textsf{doors}}　\color{#
 <tr>
 <td>
   <details>
-<summary>$\color{#7a98b6}{\textsf{ㅤㅤㅤㅤㅤclick me !ㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#7a98b6}{\textsf{ㅤㅤㅤㅤㅤpt info｡ㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
 $${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
 　　<br>
@@ -32,3 +32,25 @@ $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤ
   </tr>
   <tr>
 <td>
+
+  
+<tr>
+<td>
+  <details>
+<summary>$\color{#7a98b6}{\textsf{ㅤㅤㅤㅤㅤme's｡ㅤㅤㅤㅤㅤ}}$</summary>
+　　　<br>
+$${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
+　　<br>
+$${\color{#4c505f} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
+    <br>
+$${\color{#717170} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
+　　<br>
+$${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
+    <br>
+
+  </details>
+  </td>
+  </tr>
+  <tr>
+<td>
+
