@@ -64,3 +64,5 @@ $${\color{#4c505f} iㅤamㅤextremelyㅤfixatedㅤonㅤdoorsㅤrn!!!ㅤdoor.}$$
 $${\color{#e1caa6}{\textsf till❜　the　son　of　God　had　saved　me.　⟡}}$$
 
 </p>
+
+<p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175114886550020.jpg" /></p>
