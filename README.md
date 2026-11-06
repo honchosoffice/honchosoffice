@@ -1,7 +1,7 @@
 <p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175142610803499.jpg" /></p>
 
 <p align="center"
-  ![](https://komarev.com/ghpvc/?username=situationcritical&color=7a98b6&style=plastic&label=boxes)　 $${\color{#663549} i　was　doin'　just　fine　⟡}$$ 　
+  　 $${\color{#663549} i　was　doin'　just　fine　⟡}$$ 　
 
 </p>
 
