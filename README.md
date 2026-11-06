@@ -3,9 +3,10 @@
 
 <p align="center"><img width="400" src="https://file.garden/aA8S96EHMAOFVxCO/Untitled128_20261030203450.png" alt="poncho" align="left" width="500" /></p>
 ㅤ<br/>
+
 <p align="center"
   
-$${\color{#565978}{\textsf i　was　doin❜　just　fine　,}}$$
+![](https://komarev.com/ghpvc/?username=your-github-username&label=boxes)　 $${\color{#565978}{\textsf i　was　doin❜　just　fine　,}}$$
 
 </p>
 
