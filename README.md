@@ -16,7 +16,7 @@ ${\color{#993e36}{\textsf no1}}　\color{#565978}{\textsf{doors}}　\color{#7a98
 <tr>
 <td>
   <details>
-<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤclick me !ㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#993e36}{\textsf{ㅤㅤㅤㅤㅤclick me !ㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
 $${\color{#717170} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
 　　<br>
