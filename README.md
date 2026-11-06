@@ -1,7 +1,7 @@
 <p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175142610803499.jpg" /></p>
 
 <p align="center"
-$${\color{#663549} i　was　doin'　just　fine　⟡}$$ 　
+$${\color{#663549}{\textsf i　was　doin'　just　fine　⟡}$$
 
 </p>
 
