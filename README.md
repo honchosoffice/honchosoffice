@@ -2,7 +2,7 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=situationcritical&color=492131&style=plastic&label=blueprints)　 $${\color{#663549} the　ability　to　appreciate　beauty　is　an　important　virtue.}$$ 　( ᐡづ ᆺ◝ᐡ)
+![](https://komarev.com/ghpvc/?username=situationcritical&color=7a98b6&style=plastic&label=boxes)　 $${\color{#663549} i　was　doin'　just　fine}$$ 　( ᐡづ ᆺ◝ᐡ)
 
 </p>
 
