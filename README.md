@@ -1,15 +1,14 @@
 <p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175142610803499.jpg" /></p>
 
-<p align="center"
-  
-$${\color{#565978}{\textsf i　was　doin❜　just　fine　⟡}}$$
-
-</p>
 
 <p align="center"><img width="400" src="https://file.garden/aA8S96EHMAOFVxCO/Untitled128_20261030203450.png" alt="poncho" align="left" width="500" /></p>
 ㅤ<br/>
-<br/>
-<br/>
+<p align="center"
+  
+$${\color{#565978}{\textsf i　was　doin❜　just　fine　,}}$$
+
+</p>
+
 <br/>
 
 ${\color{#565978}{\textsf ︶︶}}ㅤㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color{#9dbfd1}{\textsf{ouㅤritter}}ㅤㅤ\color{#e1caa6}{\textsf{he it}}$
@@ -59,6 +58,8 @@ $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤ
   </tr>
   <tr>
 <td>
+<br/> 
+
 
 <p align="center"
   
