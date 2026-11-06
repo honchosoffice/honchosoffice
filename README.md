@@ -17,7 +17,7 @@ ${\color{#565978}{\textsf ︶︶}}ㅤㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color
 ${\color{#9dbfd1}{\textsf c+hㅤenc}}　\color{#993e36}{\textsf{❜ㅤiwec}} ㅤ\color{#565978}{\textsf{w2int !!!}}$ <br/>
 ${\color{#993e36}{\textsf ⸺ no1}}　\color{#565978}{\textsf{doors}}　\color{#7a98b6}{\textsf{fan}}　\color{#9dbfd1}{\textsf{kid}} \color{#e1caa6}{\textsf{napper}}$<br/> 
 
-　[rentry](https://rentry.co/honchocoholic) 　๑　 ata soon
+　${\color{#7a98b6}{\textsf ac　:　me　!}}　[rentry](https://rentry.co/honchocoholic) 　๑　 ata soon
   
 <tr>
 <td>
@@ -65,4 +65,4 @@ $${\color{#e1caa6}{\textsf till❜　the　son　of　God　had　saved　me.　
 
 </p>
 
-<p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175114886550020.jpg" /></p>
+<p align="left"></p>
