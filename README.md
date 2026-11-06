@@ -16,8 +16,7 @@ ${\color{#565978}{\textsf ︶︶}}ㅤㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color
 <br/>
 ${\color{#9dbfd1}{\textsf c+hㅤenc}}　\color{#993e36}{\textsf{❜ㅤiwec}} ㅤ\color{#565978}{\textsf{w2int !!!}}$ <br/>
 ${\color{#993e36}{\textsf ⸺ no1}}　\color{#565978}{\textsf{doors}}　\color{#7a98b6}{\textsf{fan}}　\color{#9dbfd1}{\textsf{kid}} \color{#e1caa6}{\textsf{napper}}$<br/> 
-
-$${\color{#7a98b6}ㅤartㅤcredㅤ:ㅤme!}$$ㅤ[rentry](https://rentry.co/honchocoholic) 　๑　 ata soon
+$${\color{#565978}artㅤcredㅤ:}$$ $${\color{#993e36}me!}$$ㅤ[rentry](https://rentry.co/honchocoholic) 　๑　 ata soon
   
 <tr>
 <td>
