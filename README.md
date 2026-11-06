@@ -1,8 +1,7 @@
 <p align="center"><img width="900" src="https://file.garden/aA8S96EHMAOFVxCO/Tumblr_l_175142610803499.jpg" /></p>
 
 <p align="center"
-  
-![](https://komarev.com/ghpvc/?username=situationcritical&color=7a98b6&style=plastic&label=boxes)　 $${\color{#663549} i　was　doin'　just　fine}$$ 　( ᐡづ ᆺ◝ᐡ)
+  ![](https://komarev.com/ghpvc/?username=situationcritical&color=7a98b6&style=plastic&label=boxes)　 $${\color{#663549} i　was　doin'　just　fine　⟡}$$ 　
 
 </p>
 
@@ -17,7 +16,7 @@ ${\color{#565978}{\textsf ︶︶}}ㅤㅤ\color{#7a98b6}{\textsf{jamie}}ㅤ\color
 ${\color{#9dbfd1}{\textsf c+hㅤenc}}　\color{#993e36}{\textsf{❜ㅤiwec}} ㅤ\color{#565978}{\textsf{w2int !!!}}$ <br/>
 ${\color{#993e36}{\textsf ⸺ no1}}　\color{#565978}{\textsf{doors}}　\color{#7a98b6}{\textsf{fan}}　\color{#9dbfd1}{\textsf{kid}} \color{#e1caa6}{\textsf{napper}}$<br/> 
 
-　　　　　[rentry](https://rentry.co/honchocoholic) 　๑　 ata soon
+　[rentry](https://rentry.co/honchocoholic) 　๑　 ata soon
   
 <tr>
 <td>
