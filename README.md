@@ -6,7 +6,7 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=your-github-username&label=boxes)　 $${\color{#565978}{\textsf i　was　doin❜　just　fine　,}}$$
+![](https://komarev.com/ghpvc/?username=your-github-honchosoffice&label=boxes&color=7a98b6)　 $${\color{#565978}{\textsf i　was　doin❜　just　fine　,}}$$
 
 </p>
 
