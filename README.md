@@ -6,7 +6,7 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=your-github-honchosoffice&label=boxes&color=7a98b6)　 $${\color{#565978}{\textsf i　was　doin❜　just　fine　,}}$$
+![](https://komarev.com/ghpvc/?username=your-github-honchosoffice&label=boxes&color=7a98b6)　 $${\color{#e1caa6}{\textsf i　was　doin❜　just　fine　,}}$$
 
 </p>
 
@@ -64,6 +64,6 @@ $${\color{#4c505f} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤ
 
 <p align="center"
   
-$${\color{#565978}{\textsf till❜　the　son　of　God　had　saved　me.　⟡}}$$
+$${\color{#e1caa6}{\textsf till❜　the　son　of　God　had　saved　me.　⟡}}$$
 
 </p>
