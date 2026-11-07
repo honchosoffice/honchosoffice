@@ -6,7 +6,7 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=your-github-honchosoffice&label=boxes&color=7a98b6)　 $${\color{#e1caa6}{\textsf i　was　doin❜　just　fine　,}}$$
+![](https://komarev.com/ghpvc/?username=your-github-honchosoffice&label=boxes&color=7a98b6)　 $${\color{#e1caa6}{\textsf Hark　The　Herald　Angels　Sing　,}}$$
 
 </p>
 
@@ -60,7 +60,7 @@ $${\color{#4c505f} iㅤamㅤextremelyㅤfixatedㅤonㅤdoorsㅤrn!!!ㅤdoor.}$$
 
 <p align="center"
   
-$${\color{#e1caa6}{\textsf till❜　the　son　of　God　had　saved　me.　⟡}}$$
+$${\color{#e1caa6}{\textsf Glory❜　to　The　King　of　Kings.　⟡}}$$
 
 </p>
 
