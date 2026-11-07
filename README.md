@@ -60,7 +60,7 @@ $${\color{#4c505f} iㅤamㅤextremelyㅤfixatedㅤonㅤdoorsㅤrn!!!ㅤdoor.}$$
 
 <p align="center"
   
-$${\color{#e1caa6}{\textsf Glory❜　to　The　King　of　Kings.　⟡}}$$
+$${\color{#e1caa6}{\textsf Glory　to　The　King　of　Kings.　⟡}}$$
 
 </p>
 
